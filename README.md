@@ -1,0 +1,1 @@
+# pensamentocompultacional1B
